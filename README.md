@@ -1,0 +1,1 @@
+The sole audio file in here is the full debut EP from Aunt Katrina, an experiemental indie rock band from Washington D.C., which includes members from feeble litle horse, Snail Mail, and Tosser. This file is referenced in the audio player build for their website: https://hotslut.neocities.org/
